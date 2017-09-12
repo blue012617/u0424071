@@ -8,4 +8,4 @@
 [系網址](http://www.mis.nkfust.edu.tw/)
  
  ![管院](3p2.jpg "資管")
-:smile::smile::smile:
+:smile::cry::smile:
