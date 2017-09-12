@@ -7,3 +7,4 @@
 
 [系網址](http://www.mis.nkfust.edu.tw/)
  
+ ![管院](32.jpg "資管")
